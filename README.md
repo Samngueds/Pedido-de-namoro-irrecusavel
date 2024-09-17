@@ -4,7 +4,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Oswald&weight=600&size=27&pause=1000&color=33FF57&center=true&vCenter=true&random=true&width=435&lines=Como+Pedir+Algu%C3%A9m+em+Namoro+%F0%9F%A5%B5%F0%9F%A5%B5)](https://git.io/typing-svg)
 
-## Guia Final para Conseguir um Par Real.
+## Guia Final para Conseguir um Par Real
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Oswald&weight=500&size=18&pause=3000&color=3873F7&center=true&vCenter=true&random=true&width=435&lines=Oficial+sem+V%C3%ADrus+%E2%80%93+%C3%9Altima+Edi%C3%A7%C3%A3o+Deluxe+360p+Dublado+%F0%9F%90%93)](https://git.io/typing-svg)
 
 
