@@ -45,19 +45,18 @@ No caso de vocês, só fiquem menos feios mesmo ☠️☠️
 
 *Oferecimento Manual: Lutando contra a calvície desde 1945*
 
-### 4. Ativem o Modo S3X0
+### 4. Ativem o Modo Anti-calvice V8
 
 ![Imagem](https://steamuserimages-a.akamaihd.net/ugc/2484381748304224192/F16164BAFD96B3E34B508B044758D7A9660EA7DC/)
 
 Torna vocês irresistíveis a qualquer pessoa 🥵🥵
 
-![Imagem](https://steamuserimages-a.akamaihd.net/ugc/2484381748304792994/96CE96C585B1D8ED8C29F8F54985CAFB63EB2491/)
 
 ### 5. Convidem a Pessoa para Sair
 
 ![Imagem](https://steamuserimages-a.akamaihd.net/ugc/2484381748304445548/F544E7140033409C6ECDF2EE05C90911FBF4B1A1/)
 
-Se ela (ou ele) recusar, sempre podem partir pra chantagem, ameaça e agressão. Sei lá, sejam criativos :) 🤬🤜👩
+Se ela (ou ele) recusar, sempre podem partir pra chantagem, ameaça e agressão. Sei lá, sejam criativos :) 🤬🤜
 
 Se tudo der certo, ótimo! Vocês têm um encontro agora. Vamos preparar vocês. 🤯🤯
 
